@@ -1,1 +1,1 @@
-Pokemon caught so far status
+Pokemon Go Fanpage Blog
